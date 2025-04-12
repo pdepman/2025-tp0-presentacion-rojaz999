@@ -9,4 +9,10 @@ para este tipo de cuestiones sé que *"NO da"* como dice la muchachada. Estoy cu
 Y acá estoy (no se como llegue), sobreviviendo a la fokin __UTN__. Para resumir, mi estadía en la facultad se resume en 3 cosas; __CAFÉ, VIDEOS DE PIÑEIRO__, Y entender que  `= ≠ ==`(algoritmos xd).
 
   Para sonar un poco más serio, espero que todos tengamos una cursada amena y llevadera. Que nuestros conocimientos previos respecto a la programación nos sean de utilidad y se acoplen a este curso, a decir verdad el equipo docente me parecio
-  super copado y profesional. Unos genios. En fin, Exitos A TODOS! 
+  super copado y profesional. Unos genios. En fin, Exitos A TODOS!
+
+##🚀 Algunos hobbies míos (datazo)
+
+* Me gusta pistear en mi moto cuando estoy al pepe.  
+* Jugar al fulbito con los pibes.  
+* Viciar en la compu (ex hobbie, nada tiene que ver la facu claro).
